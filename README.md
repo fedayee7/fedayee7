@@ -1,6 +1,6 @@
-<h1 align="center">𝐀𝐌𝐈𝐍 - 𝐅𝐄𝐃𝐀𝐘𝐄𝐄</h1>
+<h1 align="center">𝐀𝐌𝐈𝐍𝐄 - 𝐅𝐄𝐃𝐀𝐘𝐄𝐄</h1>
 
 <p align="center">
   
-> “Knowing the purpose leads to seeking it, seeking it leads to inquiry, inquiry leads to truth, and truth as we know is self-evident”
+> “Allah Does Not Change a Person's State Until They Change Themselves. So Just Be The Guy Who Changes It - God Bless”
 </p>
